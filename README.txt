@@ -1,3 +1,0 @@
-CHACE MCGUYER
-COGS 108
-Wed 3-4pm
